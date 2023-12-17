@@ -1,1 +1,1 @@
-# lab1.6
+Neretin Ilya
